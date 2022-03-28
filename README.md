@@ -1,0 +1,2 @@
+EXPANSION FRIENDS
+xFriends
